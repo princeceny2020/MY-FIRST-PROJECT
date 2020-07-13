@@ -1,3 +1,3 @@
 # My Portifolio
-## By Prince
+## By Prince NYIRINKINDI
 
